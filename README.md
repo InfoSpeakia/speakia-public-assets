@@ -1,0 +1,1 @@
+# speakia-public-assets
